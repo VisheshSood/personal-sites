@@ -272,6 +272,7 @@ https://www.facebook.com/groups/hackathonhackers/permalink/845765672145586/
 - Varun Rajendra Rajamane http://varunrajamane.me
 - Victor Danger Lourng http://victorlourng.com
 - Vinay Hiremath http://vhiremath.com
+- Vishesh Sood http://visheshsood.com
 - Vishnu Ks http://vishnuks.com
 - Vishnu Ravi http://vishnu.io/
 - Wasim Thabraze http://thabraze.in
